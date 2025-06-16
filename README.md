@@ -2,7 +2,7 @@
 - 👀 I’m interested in chemistry
 - 🌱 I’m currently learning IT at school name is 'Bobabrakhim Mashrab"/SPC in Uzbekistan 
 - 💞️ I’m looking to collaborate on "OpenAI"
-- 📫 How to reach me instagram: malikichka_20_11
+- 📫 How to reach me instagram: ....
 - 😄 Pronouns: I'm talkative student
 - ⚡ Fun fact: I write in monketype 66
 
